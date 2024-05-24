@@ -4,7 +4,12 @@
 
 ### Interests
 
-- Fine-grained image analysis
-
+- 王者荣耀
+  - 百强海月、杨玉环、西施
+  - 五十强奕星、上官婉儿蔡文姬
+  - 市级百强安琪拉
+- 第五人格
+- 崩坏：星穹铁道
+  
 ## Emails
 
